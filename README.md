@@ -3,7 +3,7 @@
                                          ∘₊✧──────✧₊∘
 <img width="1199" height="685" alt="image" src="https://github.com/user-attachments/assets/396f664d-da25-4131-9e73-1b08cb4896ae" />
 
-[Introduction!](https://github.com/WingedMax/Introduction-) ✧₊∘ [en pronouns](https://en.pronouns.page/@Winged_Max)
+[Introduction!](https://github.com/WingedMax/Introduction-) ✧₊∘ [En pronouns](https://en.pronouns.page/@Winged_Max) ✧₊∘ [Atabook!!](https://kagaminelen.atabook.org)
 
 ∘₊✧──────✧₊∘
 
