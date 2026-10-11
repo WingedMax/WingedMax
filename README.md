@@ -5,7 +5,7 @@ ${{\color{#626066}\normalsize{\textsf{
 <img width="1200" height="678" alt="image" src="https://github.com/user-attachments/assets/006d2296-c0ce-40ce-8099-f79c2b7656a2" />
 
 
-[Introduction](https://github.com/WingedMax/Introduction-) ✧₊∘ [En pronouns](https://en.pronouns.page/@Winged_Max) ✧₊∘ [Atabook](https://kagaminelen.atabook.org) ✧₊∘ [strawpage](https://idias-awesome.straw.page)
+ ✧₊∘ [En pronouns](https://en.pronouns.page/@Winged_Max) ✧₊∘ [Atabook](https://kagaminelen.atabook.org) ✧₊∘ [strawpage](https://idias-awesome.straw.page)
 
 ∘₊✧──────✧₊∘
 
